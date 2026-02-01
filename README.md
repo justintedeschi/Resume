@@ -13,4 +13,4 @@ Key skills and areas of expertise include:
 
 I am passionate about continuous learning, hands-on experimentation, and applying best practices to secure and optimize IT infrastructure. I am open to professional opportunities, collaboration, and networking. 
 
-Please feel free to reach out via [email](mailto:justin1tedeschi@gmail.com) or connect on [LinkedIn](https://www.linkedin.com/in/justin-tedeschi/).
+Please feel free to reach out via [Email](https://mail.google.com/mail/?view=cm&fs=1&to=justin1tedeschi@gmail.com) or connect on [LinkedIn](https://www.linkedin.com/in/justin-tedeschi/).
